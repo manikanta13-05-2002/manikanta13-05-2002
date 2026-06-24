@@ -48,6 +48,7 @@ Data analyst with 3+ years of experience in banking and financial services, focu
 ## 📫 Let's Connect
 
 - 📧 Email: **jonnalagaddamani13@gmail.com**
+- 🌐 Portfolio: [manikanta13-05-2002.github.io/my-portfolio](https://manikanta13-05-2002.github.io/my-portfolio/)
 - 💼 LinkedIn: _add your LinkedIn URL here_
 - 📍 Memphis, TN
 
